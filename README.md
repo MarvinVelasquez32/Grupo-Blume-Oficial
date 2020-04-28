@@ -1,3 +1,2 @@
 # Grupo-Blume-Oficial
- Para los participantes
-tengan cuidado con lo que hagan...
+ Para los participante
